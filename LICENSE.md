@@ -1,4 +1,4 @@
-# 
+# Oficial dex sniper bot predefinições para Mac OS | Melhor dex sniper bot predefinições para PC Windows. Com otimização de rota e gerenciamento de carteira — otimizado para máximo desempenho em cada plataforma.
 
 
 
